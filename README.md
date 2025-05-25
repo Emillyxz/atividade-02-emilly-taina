@@ -1,1 +1,1 @@
-# atividade-02-emilly-taina
+# Este repositório foi criado por Emilly Taina
